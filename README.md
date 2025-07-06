@@ -1,8 +1,9 @@
 > NOTE: **Bolded Text** = Favorite, *Italic* = Learning About
+> ALSO NOTE: I have more interests than the ones listed, but I won't share them unless I am comfortable with you.
 
 ## Games
 
-**ROBLOX (PHIGHTING!, Regretevator, Forsaken, Untitled Tag Game**, Super Bomb Survival)
+**ROBLOX (PHIGHTING!, Regretevator, Untitled Tag Game**, Super Bomb Survival)
 
 **Minecraft** 
 
@@ -11,8 +12,6 @@
 *Splatoon*
 
 *Bugsnax*
-
-Fortnite
 
 **pony.town**
 
@@ -37,6 +36,8 @@ Murder Drones
 ***Nature; flowers, Venus Fly Traps***
 
 ***Astronomy***
+
+**Music**
 
 ### other
 
