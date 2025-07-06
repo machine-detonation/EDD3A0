@@ -1,2 +1,3 @@
-# EDD3A0
-interests/stuff I personally enjoy
+> NOTE: **Bolded Text** = Favorite, *Italic* = Learning About
+
+## Games
