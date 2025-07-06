@@ -2,7 +2,7 @@
 
 ## Games
 
-**ROBLOX (PHIGHTING!, Regretevator, Forsaken, Untitled Tag Game**, Super Bomb Survival), **Minecraft**, *Brawl Stars, Splatoon, Bugsnax*, Fortnite
+**ROBLOX (PHIGHTING!, Regretevator, Forsaken, Untitled Tag Game**, Super Bomb Survival), **Minecraft**, *Brawl Stars, Splatoon, Bugsnax*, Fortnite, **pony.town**, Animal Jam, ***Animal Crossing (All games + New Horizons)***
 
 ## Shows
 
