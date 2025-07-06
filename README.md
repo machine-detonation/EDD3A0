@@ -6,12 +6,12 @@
 
 ## Shows
 
-The Amazing Digital Circus, Murder Drones, Wordgirl, Object Shows (BFDI/XFOHV/TPOT/BFDIA, Inanimate Insanity, Animatic Battle)
+The Amazing Digital Circus, Murder Drones, *Wordgirl*, ***Object Shows (BFDI/XFOHV/TPOT/BFDIA, Inanimate Insanity, Animatic Battle)***
 
 ## General
 
-Bugs/Insects, or any kind of weird critters for that matter (Bees, Moths, Centipedes, Orchid Mantises), Nature; flowers, Venus Fly Traps, Astronomy
+***Bugs/Insects, or any kind of weird critters for that matter (Bees, Moths, Centipedes, Orchid Mantises)***, ***Nature; flowers, Venus Fly Traps***, ***Astronomy***
 
 ### other
 
-MEN!!!! /silly, stargazing/cloudgazing
+**MEN!!!! /silly**, stargazing/cloudgazing
