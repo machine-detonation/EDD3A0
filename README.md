@@ -1,4 +1,5 @@
 > NOTE: **Bolded Text** = Favorite, *Italic* = Learning About
+
 > ALSO NOTE: I have more interests than the ones listed, but I won't share them unless I am comfortable with you.
 
 ## Games
