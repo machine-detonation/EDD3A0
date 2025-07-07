@@ -48,8 +48,8 @@ stargazing/cloudgazing
 
 ### comfort characters/characters that I think are cool
 
-[Hazel/Sally](animalcrossing.fandom.com/wiki/Hazel) (Animal Crossing)
+[Hazel/Sally](https://animalcrossing.fandom.com/wiki/Hazel) (Animal Crossing)
 
-[Sword](phighting.wiki/Sword), [Vine Staff](phighting.wiki/Vine_Staff) and [The Dollmaker](phighting.wiki/The_Dollmaker) (PHIGHTING!)
+[Sword](https://phighting.wiki/Sword), [Vine Staff](https://phighting.wiki/Vine_Staff) and [The Dollmaker](https://phighting.wiki/The_Dollmaker) (PHIGHTING!)
 
 Crazy Food, Landscape, Tea, Rainbow Assortment, Sticky, Yoshi Egg, Nebula Void and Hives (Animatic Battle)
