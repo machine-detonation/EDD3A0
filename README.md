@@ -10,7 +10,7 @@
 
 **[Minecraft](https://en.m.wikipedia.org/wiki/Minecraft)** 
 
-*Brawl Stars*
+*[Brawl Stars](https://brawlstars.fandom.com/wiki/Brawl_Stars_Wiki)* [Wikipedia Version](https://en.m.wikipedia.org/wiki/Brawl_Stars)
 
 *Splatoon*
 
