@@ -3,6 +3,8 @@
 > ALSO NOTE: I have more interests than the ones listed, but I won't share them unless I am comfortable with you.
 >
 > ALSO ALSO NOTE: all of the linked text brings you to a wiki for the selected interest
+>
+> ALSO ALSO ALSO NOTE: I put multiple links for the wikis because some of them have different information
 
 ## Games
 
