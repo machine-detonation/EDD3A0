@@ -12,15 +12,15 @@
 
 *Brawl Stars* - [Fandom](https://brawlstars.fandom.com/wiki/Brawl_Stars_Wiki) // [Wikipedia](https://en.m.wikipedia.org/wiki/Brawl_Stars)
 
-*Splatoon*
+*Splatoon* - [Wikipedia](en.m.wikipedia.org/wiki/Splatoon)
 
-*Bugsnax*
+*Bugsnax* - [Wikipedia](en.m.wikipedia.org/wiki/Bugsnax)
 
-**pony.town**
+**pony.town** - [Wikipedia, scroll down to find](https://en.m.wikipedia.org/wiki/Online_communities_of_the_My_Little_Pony:_Friendship_Is_Magic_fandom)
 
-Animal Jam 
+Animal Jam - [Wikipedia](https://en.m.wikipedia.org/wiki/Animal_Jam_Classic)
 
-***Animal Crossing (All games + New Horizons)***
+***Animal Crossing (All games + New Horizons)*** - [Wikipedia](https://en.m.wikipedia.org/wiki/Animal_Crossing)
 
 ## Shows
 
