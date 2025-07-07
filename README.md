@@ -1,10 +1,12 @@
 > NOTE: **Bolded Text** = Favorite, *Italic* = Learning About
 > 
 > ALSO NOTE: I have more interests than the ones listed, but I won't share them unless I am comfortable with you.
+>
+> ALSO ALSO NOTE: all of the linked text brings you to a wiki for the selected interest
 
 ## Games
 
-**ROBLOX (PHIGHTING!, Untitled Tag Game**, Super Bomb Survival, Whispering Pines)
+**[ROBLOX](https://en.m.wikipedia.org/wiki/Roblox) ([PHIGHTING!](https://phighting.wiki), Untitled Tag Game**, Super Bomb Survival, Whispering Pines)
 
 **Minecraft** 
 
@@ -50,6 +52,6 @@ stargazing/cloudgazing
 
 [Hazel/Sally](https://animalcrossing.fandom.com/wiki/Hazel) (Animal Crossing)
 
-**[Sword](https://phighting.wiki/Sword), [Vine Staff](https://phighting.wiki/Vine_Staff) and [The Dollmaker](https://phighting.wiki/The_Dollmaker)** ([PHIGHTING!](https://phighting.wiki)
+**[Sword](https://phighting.wiki/Sword), [Vine Staff](https://phighting.wiki/Vine_Staff) and [The Dollmaker](https://phighting.wiki/The_Dollmaker)** (PHIGHTING!)
 
 [Crazy Food](https://animatic-battle-battle.fandom.com/wiki/Crazy_Food), **[Landscape](animatic-battle-battle.fandom.com/wiki/Landscape)**, Tea, Rainbow Assortment, Sticky, **Yoshi Egg, Nebula Void and Hives** (Animatic Battle)
