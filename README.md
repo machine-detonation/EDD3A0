@@ -8,7 +8,7 @@
 
 **[ROBLOX](https://en.m.wikipedia.org/wiki/Roblox) ([PHIGHTING!](https://phighting.wiki), [Untitled Tag Game](https://utg.miraheze.org/wiki/Untitled_Tag_Gane_Wiki)**, [Super Bomb Survival](https://roblox-super-bomb-survival.fandom.com/wiki/Roblox_Super_Bomb_Survival_Wiki), [Whispering Pines](https://offical-the-rake-whispering-pines.fandom.com/wiki/Offical_The_Rake_Whispering_Pines_Wiki))
 
-**Minecraft** [Wikipedia](https://en.m.wikipedia.org/wiki/Minecraft) // [Fandom](https://minecraft.fandom.com/wiki/Minecraft_Wiki)
+**Minecraft** - [Wikipedia](https://en.m.wikipedia.org/wiki/Minecraft) // [Fandom](https://minecraft.fandom.com/wiki/Minecraft_Wiki)
 
 *Brawl Stars* - [Fandom](https://brawlstars.fandom.com/wiki/Brawl_Stars_Wiki) // [Wikipedia](https://en.m.wikipedia.org/wiki/Brawl_Stars)
 
@@ -54,4 +54,4 @@ stargazing/cloudgazing
 
 **[Sword](https://phighting.wiki/Sword), [Vine Staff](https://phighting.wiki/Vine_Staff) and [The Dollmaker](https://phighting.wiki/The_Dollmaker)** (PHIGHTING!)
 
-[Crazy Food](https://animatic-battle-battle.fandom.com/wiki/Crazy_Food), **[Landscape](animatic-battle-battle.fandom.com/wiki/Landscape)**, Tea, Rainbow Assortment, Sticky, **Yoshi Egg, Nebula Void and Hives** (Animatic Battle)
+[Crazy Food](https://animatic-battle-battle.fandom.com/wiki/Crazy_Food), **[Landscape](animatic-battle-battle.fandom.com/wiki/Landscape)**, [Tea](https://animatic-battle-battle.fandom.com/wiki/Tea), [Rainbow Assortment](https://animatic-battle-battle.fandom.com/wiki/Rainbow_Assortment), [Sticky](https://animatic-battle-battle.fandom.com/wiki/Sticky), **[Yoshi Egg](https://animatic-battle-battle.fandom.com/wiki/Yoshi_Egg), [Nebula Void](https://animatic-battle-battle.fandom.com/wiki/Nebula_Void) and [Hives](https://animatic-battle-battle.fandom.com/wiki/Hives)** (Animatic Battle)
