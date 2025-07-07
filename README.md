@@ -50,6 +50,6 @@ stargazing/cloudgazing
 
 [Hazel/Sally](https://animalcrossing.fandom.com/wiki/Hazel) (Animal Crossing)
 
-[Sword](https://phighting.wiki/Sword), [Vine Staff](https://phighting.wiki/Vine_Staff) and [The Dollmaker](https://phighting.wiki/The_Dollmaker) (PHIGHTING!)
+**[Sword](https://phighting.wiki/Sword), [Vine Staff](https://phighting.wiki/Vine_Staff) and [The Dollmaker](https://phighting.wiki/The_Dollmaker)** ([PHIGHTING!](https://phighting.wiki)
 
-Crazy Food, Landscape, Tea, Rainbow Assortment, Sticky, Yoshi Egg, Nebula Void and Hives (Animatic Battle)
+[Crazy Food](https://animatic-battle-battle.fandom.com/wiki/Crazy_Food), **[Landscape](animatic-battle-battle.fandom.com/wiki/Landscape)**, Tea, Rainbow Assortment, Sticky, **Yoshi Egg, Nebula Void and Hives** (Animatic Battle)
