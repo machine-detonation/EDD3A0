@@ -8,9 +8,9 @@
 
 **[ROBLOX](https://en.m.wikipedia.org/wiki/Roblox) ([PHIGHTING!](https://phighting.wiki), [Untitled Tag Game](https://utg.miraheze.org/wiki/Untitled_Tag_Gane_Wiki)**, [Super Bomb Survival](https://roblox-super-bomb-survival.fandom.com/wiki/Roblox_Super_Bomb_Survival_Wiki), [Whispering Pines](https://offical-the-rake-whispering-pines.fandom.com/wiki/Offical_The_Rake_Whispering_Pines_Wiki))
 
-**[Minecraft](https://en.m.wikipedia.org/wiki/Minecraft)** 
+**Minecraft** [Wikipedia](https://en.m.wikipedia.org/wiki/Minecraft) // [Fandom](https://minecraft.fandom.com/wiki/Minecraft_Wiki)
 
-*[Brawl Stars](https://brawlstars.fandom.com/wiki/Brawl_Stars_Wiki)* [Wikipedia Version](https://en.m.wikipedia.org/wiki/Brawl_Stars)
+*Brawl Stars* - [Fandom](https://brawlstars.fandom.com/wiki/Brawl_Stars_Wiki) // [Wikipedia](https://en.m.wikipedia.org/wiki/Brawl_Stars)
 
 *Splatoon*
 
