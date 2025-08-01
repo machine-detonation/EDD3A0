@@ -1,6 +1,6 @@
 > **BOLD** = Favorite • _ITALIC_ = Just introduced to/Learning about • ~~Strikethrough~~ = Inactive
 >
-> I do have other interests but I'm keeping them private. I'll let you know what they are if I'm comfortable with you.
+> I do have other interests but I'm keeping them private. I'll let you know what they are if I'm comfortable with you
 
 ![m8sm67](https://github.com/user-attachments/assets/317f0c4a-aaaf-4292-86cb-76d5a13b5104) -- **Music; Yoeko Kurahashi, Kikuo, Maretu, Steve Lacy, Spellcasting, KeyAfterKey, Deister Orchestra, Nuvfr, Goreshit, Lemon Demon, Soddikken, Rori/Loli in Early 20's** - I listen to basically anything but these are my favorites atm
 
