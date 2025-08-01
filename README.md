@@ -2,7 +2,7 @@
 >
 > I do have other interests but I'm keeping them private. I'll let you know what they are if I'm comfortable with you
 
-![m8sm67](https://github.com/user-attachments/assets/317f0c4a-aaaf-4292-86cb-76d5a13b5104) -- **Music; Yoeko Kurahashi, Kikuo, Maretu, Spellcasting, KeyAfterKey, Deister Orchestra, Nuvfr, Goreshit, Lemon Demon, Soddikken, Rori/Loli in Early 20's, The Living Tombstone, Infinity Frequencies**
+![m8sm67](https://github.com/user-attachments/assets/317f0c4a-aaaf-4292-86cb-76d5a13b5104) -- **Music; Yoeko Kurahashi, Kikuo, Maretu, Spellcasting, KeyAfterKey, Deister Orchestra, Nuvfr, Goreshit, Lemon Demon, Soddikken, Rori/Loli in Early 20's, The Living Tombstone, Infinity Frequencies, TV Girl, Boy 2000**
 
 <img width="30" height="15" alt="mo137" src="https://github.com/user-attachments/assets/3c80ffb6-724d-43ff-84dc-ecf3df4df341" /> -- **Video Games: ROBLOX (PHIGHTING!, Super Bomb Survival, Super Doomspire, Cavern Crusher, Die of Death, Whispering Pines), Super Mario Odyssey, Mario Kart 8 Deluxe, _Splatoon_, Minecraft,** _Brawl Stars_, Animal Crossing, _Bugsnax_, *~~Sonic~~*
 
